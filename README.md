@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @KhawajaAwaisUrRehmanSaithy
+- 👀 I’m interested in data analytics
+- 🌱 I’m currently learning statistics in UNIVERSITY OF SARGODHA
